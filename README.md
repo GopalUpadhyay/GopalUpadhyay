@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **HTML/CSS/DSA**
 
-- 📫 How to reach me **gopalupadhyay2345@gmail.com**
+- 📫 How to reach me **gopalupadhyay202@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
